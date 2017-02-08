@@ -16,14 +16,12 @@ The steps are simple.
 
 4. Anyone can invite a new person to the group, but the invitee's politics have to differ substantially from the inviter's politics.
 
-That's it. Other than that, make the group work for you however you want.  It can be a Facebook group, or every Thursday at the diner, or whatever. The goal is just to start breaking down the Us vs. Them, Team A or Team B mentality that has overtaken not just our political process, but our lives as a whole. Think about the people in your life that you respect, and the qualities that make you respect them. Dollars to donuts that almost those qualities are not related to partisan issues, but are more fundamental to the person. Those respectable qualities are present in people regardless of their stance on particular issues. **The vast, _vast_ majority of our fellow citizens are worthy of our respect**. 
+That's it. Other than that, make the group work for you however you want.  It can be a Facebook group, or every Thursday at the diner, or whatever. The goal is just to start breaking down the Us vs. Them, Team A or Team B mentality that has overtaken not just our political process, but our lives as a whole. Think about the people in your life that you respect, and the qualities that make you respect them. Dollars to donuts that those qualities are not related to partisan issues, but are more fundamental to the person. Those respectable qualities are present in people regardless of their stance on particular issues. **The vast, _vast_ majority of our fellow citizens are worthy of our respect**. 
 
-**It will be hard at first.**  That's why we're here. We're building resources for _you_, so that when you start to have doubts, or when the 
+**It will be hard at first.**  That's why we're here. We're building resources for _you_, so that when you start to have doubts, or when when things get heated, you can find a way to recognize the humanity in your partners and come back to the discussion. We all come from different places, and we will recognize that what's true for one person or group is not necessarily true for another. You don't have to agree, but you have to make a genuine effort to understand why your partners hold the opinions that they do. 
 
 ### There is no partisan agenda here.
 
-We are a group of people tired of watching our fellow citizens tear each other down. By starting or joining a WeTalk group, you are still free (and even encouraged) to engage in whatever causes move you to action. The goal is not to make everyone agree, but to make everyone recognize that in the end what we all want is safety, security, and decent chance at success.
+We are a group of Americans tired of watching our fellow citizens tear each other down. By starting or joining a group, you are still free (and even encouraged) to engage in whatever causes move you to action. The goal is not to make everyone agree, but to make everyone recognize that in the end what we all want is safety, security, and decent chance at success.
 
-### We stand at a momentous time in history
 
-No one can deny that this moment is unprecedented in American history. Many people are afraid, many people see hope. The election of Donald Trump has driven the wedge deeper 
